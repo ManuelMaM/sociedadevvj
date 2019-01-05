@@ -3,3 +3,4 @@
 <p><b>[ . ]</b> Afirmação do direito de sesseção individual. </p>
 <p><b>[ . ]</b> Conscientização da população a cerca da liberdade individual. </p>
 <p><b>REJEITAMOS QUALQUER TIPO DE IDEIA TOTALITÁRIA, COLETIVISTA E SEUS AFINS  </p></b>
+Metas em vista = SITE.
