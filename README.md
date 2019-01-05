@@ -2,4 +2,4 @@
 <p><b>[ . ]</b> Reivindicação de uma sociedade totalmente voluntária no Vale do Jequitinhonha. </p>
 <p><b>[ . ]</b> Afirmação do direito de sesseção individual. </p>
 <p><b>[ . ]</b> Conscientização da população a cerca da liberdade individual. </p>
-<p><b>REJEITAMOS QUALQUER TIPO DE IDEIA TOTALITÁRIA, COLETIVISTA E SEUS AFINS </p></b>
+<p><b>REJEITAMOS QUALQUER TIPO DE IDEIA TOTALITÁRIA, COLETIVISTA E SEUS AFINS imposto é legal </p></b>
